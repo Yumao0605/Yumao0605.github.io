@@ -1,2 +1,2 @@
 # Yumao0605.github.io
-![圖的簡稱](Xiao Xin.jpg)
+![蠟筆小新](Xin.jpg)
